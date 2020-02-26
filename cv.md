@@ -5,3 +5,4 @@
 I am a communicative, self-confident, punctual, ambitious, motivated, stress-resistant person, who can easily work with a team of developers. I also think that my virtue is an ability to relax and disconnect my brain from problems, so I can restore my energy, for me it`s extremely significant.
 
 I`m sure that EPAM will find a team member, soul-mate in me and will help me to reveal my potential. I want to work in EPAM because I have a desire to work in a friendly atmosphere with professionals, with interesting people, I want to grow with this company and I`m confident that I will. The main reason I chose EPAM? I have a desire to grow as a person and professional and I know that this company provides all possible opportunities to its employees.
+f
